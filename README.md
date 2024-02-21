@@ -1,4 +1,4 @@
-### Hi there 👋
+### bom dia boa tarde boa noite 🤣
 
 <!--
 **MibrGhosts/MibrGhosts** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
